@@ -1,7 +1,8 @@
 # Abstracting away the machine  
 The history of the Fortran programming language  
 by Mark Jones Lorenzo
-
+published 2019
+read 2020-08-26
 ## Errata
 
 p 87

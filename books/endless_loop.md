@@ -1,6 +1,8 @@
 # Endless loop
 The history of the BASIC programming language  
 by Mark Jones Lorenzo
+published 2017
+read 2020-01-02
 
 ## Errata
 
