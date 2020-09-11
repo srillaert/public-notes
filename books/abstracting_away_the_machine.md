@@ -5,6 +5,15 @@ published 2019
 read 2020-08-26
 ## Errata
 
+p 64
+In ~~1962~~ *1961* at Bell Telephone Laboratories, John L. Kelly, Jr., along with Max Mathews, would create a recording of a computer-synthesized voice singing a song: "Daisy Bell (Bicycle Built for Two)", written in 1892 by British songwriter Harry Dacre.
+Which proved inspirational to Arthur C. Clarke, who saw a demonstration of the ~~704~~ *7094* "singing" and integrated the idea into the novelization and the movie script of 2001: A Space Odyssey (1968).  
+The sources are not univocal on this but it seems that Max Mathews created his first music synthesizer, MUSIC I, on an IBM 704 in 1957. However, "Daisy Bell" was probably generated on a IBM 7094 in 1961. The visit of Arthur C. Clarke was probably in 1962.  
+Sources :  
+Daisy Bell on wikipedia at https://en.wikipedia.org/wiki/Daisy_Bell  
+MUSIC, a program written by Max Mathews at https://en.wikipedia.org/wiki/MUSIC-N  
+The IBM 7094 is the first computer to sing at https://www.historyofinformation.com/detail.php?entryid=4445
+
 p 87
 ... and floating-point numbers, which could be between 10e-38 and 10e38 ~~decimal digits in length~~
 
