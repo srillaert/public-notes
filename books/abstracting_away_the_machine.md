@@ -1,7 +1,7 @@
 # Abstracting away the machine  
 The history of the Fortran programming language  
-by Mark Jones Lorenzo
-published 2019
+by Mark Jones Lorenzo  
+published 2019  
 read 2020-08-26
 ## Errata
 
@@ -16,6 +16,12 @@ The IBM 7094 is the first computer to sing at https://www.historyofinformation.c
 
 p 87
 ... and floating-point numbers, which could be between 10e-38 and 10e38 ~~decimal digits in length~~
+
+p 181
+And the DOUBLE PRECISION data type was a ~~subset~~ *superset* of the REAL data type.  
+A real constant consists of 1-9 significant decimal digits written with a decimal point.
+A double-precision constant consists of 1-17 significant decimal digits written with a decimal point.  
+Source : IBM 7090/7094 Programming Systems FORTRAN IV Language p.7 http://atwww.bitsavers.org/pdf/ibm/7090/C28-6274-1_7090_FORTRANIV.pdf
 
 p 183
 FACT(N) = ~~FACT(N)~~ *N* * FACT(N-1)
