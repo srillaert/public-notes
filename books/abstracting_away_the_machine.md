@@ -26,6 +26,13 @@ Source : IBM 7090/7094 Programming Systems FORTRAN IV Language p.7 http://atwww.
 p 183
 FACT(N) = ~~FACT(N)~~ *N* * FACT(N-1)
 
+p 190
+~~Although it had never been done with any programming language before,~~ standardization was indeed the next step in FORTRAN's evolution.  
+ALGOL and COBOL were the first languages to seek standardization, around 1960.  
+Sources :  
+ALGOL 60 Standardization on wikipedia : https://en.wikipedia.org/wiki/ALGOL_60#Standardization  
+COBOL 60 on wikipedia : https://en.wikipedia.org/wiki/COBOL#COBOL_60
+
 p 196
 According to one observer, the concept of an "undefinition" was an attempt to bridge "two worlds" so they could "coexist": the world of ~~multi-processing~~ *multi-programming* environments that "saved the last-used-state of a subprogram" and those that loaded the "initial-state without preserving the last-used state and therefore all local values were lost."  
 Replace "multi-processing" by "multi-programming".
