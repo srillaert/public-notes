@@ -8,5 +8,6 @@ From my most favorite to the least :
 1. Where wizards stay up late
 1. Endless loop
 1. The soul of a new machine
+1. The supermen
 1. Just for Fun
 1. The Friendly Orange Glow
