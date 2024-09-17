@@ -1,0 +1,21 @@
+# Camino 2024-8-20 till 2024-9-07
+
+- 2024-8-20 Aerostay Hostel, 123 Rua de Pedras Rubras, Moreira, Portugal
+- 2024-8-21 Albergue de Peregrinos do Mosteiro de Vairão, Portugal
+- 2024-8-22 Albergue Amigos da Montanha, Largo Penedos 64, Barcelinhos, Portugal
+- 2024-8-23 Casa Da Fernanda, Lugar de Corgo, Portugal
+- 2024-8-24 Albergue de Peregrinos de Ponte de Lima, Largo da Alegria 120, Pte. de Lima, Portugal
+- 2024-8-25 Albergue Quinta Estrada Romana, Caminho De Santiago 1607, Passos, Cerdal, Portugal
+- 2024-8-26 Albergue Convento Del Camino, Tui, Spain
+- 2024-8-27 O Porriño Pilgrims' Hostel, Av. Buenos Aires, 17, O Porriño, Pontevedra, Spain
+- 2024-8-28 Albergue de Peregrinos Santa Baia de Mos, Camiño da Rua, 3, Pontevedra, Spain
+- 2024-8-29 Albergue Casa Calvar, Lugar campo da feira Arcade, Estrada de Soutomaior, 1, 36690 Pontevedra, Spain
+- 2024-8-30 Albergue de Peregrinos de Briallos, EP-8102, 25, 8102, 36658 O Cruceiro, Pontevedra, Spain
+- 2024-8-31 Convento de Herbón, Rego da Manga, 56, Herbón, 15915, A Coruña, Spain
+- 2024-9-01 Albergue Milladoiro, R.Buxo, 4, 15895 O Milladoiro, A Coruña, Spain
+- 2024-9-02 Albergue The Last Stamp, Preguntoiro 10, 15704 Santiago de Compostela, Spain
+- 2024-9-03 Albergue Cotón, Av. Santiago, 22, 15830 Negreira, A Coruña, Spain
+- 2024-9-04 Albergue-Pensión Ponte Olveira, Ponte Olveira 3, 15256 Corzón, La, A Coruña, Spain
+- 2024-9-05 Albergue de Peregrinos AGACS San Roque de Corcubión, Campo de San Roque, 15130 Corcubión, A Coruña, Spain
+- 2024-9-06 Albergue y Pensión Finistellae, Rúa Manuel Lago País, 7, 15155 Fisterra, A Coruña, Spain
+- 2024-9-07 Gallery Hostel, Rua de Miguel Bombarda 222 R/C, 4050-377 Porto, Portugal
