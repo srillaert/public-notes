@@ -7,14 +7,60 @@ The dates listed below refer to the departure from the accommodation, not the ar
 ### 2024-8-20 Aerostay Hostel
 123 Rua de Pedras Rubras, Moreira, Portugal  
 Small hostel with code check-in close to the airport.
++ Check-in day and night (arrived between 1 and 2 AM).
++ Walking distance, less than 1 km, from the airport.
++ Clean.
+- Noise from the air conditioning at night and traffic in the morning.
+- Only 1 men's shower and toilet.
+- Small common room.
+
+#### Walk
+- Walked to the Divino Salvador de Moreira Monastery to get on the central camino.
+- Then 3 km of the camino to Decathlon Maia to buy an inflatable sleeping mat and a belt.
+- +/- 15 km to Mosteiro de Vairão
+	- Regularly there is no pedestrian path.
+	- Would not do it with children.
+	- Strong sun.
+	- Churches were closed.
+	+ Regularly public toilets.
+	+ Portuguese are very friendly.
+		+ Two cars honking and greeting.
+		+ Old lady in the park explaining the way in Portuguese.
 
 ### 2024-8-21 Albergue de Peregrinos do Mosteiro de Vairão
 Vairão, Portugal  
 Old monastery that has been converted partly into an albergue and partly into a youth camp center.
++ Old monastery.
++ Cheap : 10 euro bed + 4 euro breakfast.
++ Good amount of space.
++ Excellent breakfast from 6 AM.
+- Bedroom and showers are basic.
+- Staff only speaks Portuguese.
+- Only a poorly rated restaurant in the village.
+
+#### 28 km walk to Barcelinhos
+- Ate sweetcorn on the way.
+- Long walk in the sun.
+- From 2 PM to 3 PM laid on a bench under a tree.
+- Arrived late, 8 PM, at the next albergue.
+- A more pleasant route than the day before.
 
 ### 2024-8-22 Albergue Amigos da Montanha
 Largo Penedos 64, Barcelinhos, Portugal  
 Modern albergue in the city with one densely packed dormitory.
++ Modern.
++ Only 8 euros (but they couldn't provide change for a 10 euro bill).
+- One room with 8 bunk beds (16 people).
+- Locked in after 10 PM.
+- Couldn't sleep until 2 AM due to a combination of an emergency light, air conditioning, and a snorer.
+
+#### Walk
+- 9 AM at the start of the mass at the church of Templo do Senhor Bom Jesus da Cruz in Barcelos.
+- Bought excellent baguette at the large market next to the church.
+- Camino becomes more hilly.
+- Lunch and washed my feet next to the church at Portela de Tamel.
+- Passed the train station of Tamel.
+- Coffee at Giestal.
 
 ### 2024-8-23 Casa Da Fernanda
 Lugar de Corgo, Portugal  
