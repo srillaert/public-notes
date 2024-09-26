@@ -87,18 +87,46 @@ State owned modern albergue next to a busy road.
 ### 2024-8-28 Albergue de Peregrinos Santa Baia de Mos
 Camiño da Rua, 3, Pontevedra, Spain  
 Charming small town featuring three bars, an upscale restaurant, a camino shop and a playground.
++ Charming Swiss-style town nestled among mountains.
++ Spacious room with kitchen and dining table.
++ Coin-operated washing machine and dryer.
++ Smaller dormitory rooms upstairs, including a 6-bed room.
++ Only 10 euros.
+- Dormitory a bit cramped.
+
+#### Walk
+- Enjoyed a coffee in front of the restaurant in Mos.
+- Along the way, there was a stunning view of Redondela and the Ria de Vigo bay.
+- All the albergues in Redondela were fully booked. The cheapest options on booking.com and Airbnb were over 100 euros. Solution? Return to Mos for the affordable albergue.
+- There doesn't seem to be a direct bus between Redondela and Mos. Took a taxi instead (15 euros for the 10 km ride).
+- Ate 'pulpa' at the restaurant in Mos, 'O Alpendre Tapería Cafetería'.
 
 ### 2024-8-29 Albergue Casa Calvar
 Lugar campo da feira Arcade, Estrada de Soutomaior, 1, 36690 Pontevedra, Spain  
 Private albergue with swimming pool and restaurant.
 
+#### Walk
+- Bought the camino T-shirt at 'Bo Camiño', the souvenir shop in Mos.
+
 ### 2024-8-30 Albergue de Peregrinos de Briallos
 EP-8102, 25, 8102, 36658 O Cruceiro, Pontevedra, Spain  
 Public albergue in a small village with pilgrims' menu, basketball field and small playground.
 
+#### Walk
+- Took a detour from the regular Camino route, heading right (east) of Padrón along a trail that crosses a narrow bridge over the Rio Ulla, leading directly to the monastery.
+
 ### 2024-8-31 Convento de Herbón
 Rego da Manga, 56, Herbón, 15915, A Coruña, Spain  
-A Franciscan monastery, now converted into an albergue, is run by dedicated Spanish volunteers. There is a guided tour, a pilgrims' mass, and a communal dinner, creating a spiritual experience.
+A Franciscan monastery, now converted into an albergue, is run by dedicated Spanish volunteers (AGACS, Asociación Galega de Amigos do Camiño de Santiago). There is a guided tour, a pilgrims' mass, and a communal dinner, creating a spiritual experience.
++ Guided tour: The first part, inside the church, was a bit dull as the Spanish-speaking guide used a mobile phone for English translation, which made it hard to stay engaged. However, the second part, a tour around the monastery where various guests helped translate, was much more engaging. The guide's inspirational speech at the end was especially memorable.
++ Mass conducted by three elderly priests, concluding with a special pilgrims' blessing where guests read a text in their native languages.
++ Communal dinner: I sat with a Christian youth group from Aveiro, Portugal. Fun fact: Aveiro is known as the "Venice of Portugal" and is famous for its salt flats.
++ Communal breakfast. 
++ Sleeping arrangement: A long corridor with alcoves, each containing a bunk bed.
++ Donation-based stay.
+- No washing machine, only facilities for hand washing.
+- No reservation possible. The door opens at 3 PM on a first-come, first-served basis, with only around 20 beds.
+- Morning wake-up.
 
 ### 2024-9-01 Albergue Milladoiro
 R.Buxo, 4, 15895 O Milladoiro, A Coruña, Spain  
