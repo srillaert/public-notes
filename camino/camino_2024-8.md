@@ -84,6 +84,13 @@ Former convent converted into an albergue, featuring a courtyard, in the histori
 Av. Buenos Aires, 17, O Porriño, Pontevedra, Spain  
 State owned modern albergue next to a busy road.
 
+#### Walk
+- Enjoyed a coffee in front of the restaurant in Mos.
+- Along the way, there was a stunning view of Redondela and the Ria de Vigo bay.
+- All the albergues in Redondela were fully booked. The cheapest options on booking.com and Airbnb were over 100 euros. Solution? Return to Mos for the affordable albergue.
+- There doesn't seem to be a direct bus between Redondela and Mos. Took a taxi instead (15 euros for the 10 km ride).
+- Ate 'pulpa' at the restaurant in Mos, 'O Alpendre Tapería Cafetería'.
+
 ### 2024-8-28 Albergue de Peregrinos Santa Baia de Mos
 Camiño da Rua, 3, Pontevedra, Spain  
 Charming small town featuring three bars, an upscale restaurant, a camino shop and a playground.
@@ -95,22 +102,28 @@ Charming small town featuring three bars, an upscale restaurant, a camino shop a
 - Dormitory a bit cramped.
 
 #### Walk
-- Enjoyed a coffee in front of the restaurant in Mos.
-- Along the way, there was a stunning view of Redondela and the Ria de Vigo bay.
-- All the albergues in Redondela were fully booked. The cheapest options on booking.com and Airbnb were over 100 euros. Solution? Return to Mos for the affordable albergue.
-- There doesn't seem to be a direct bus between Redondela and Mos. Took a taxi instead (15 euros for the 10 km ride).
-- Ate 'pulpa' at the restaurant in Mos, 'O Alpendre Tapería Cafetería'.
+- Bought the camino T-shirt at 'Bo Camiño', the souvenir shop in Mos.
+- Refreshing jump in the cold swimming pool of Casa Calvar.
+- Walked to the harbor of Estrada de Soutomaior and had a baguette on a bench there while enjoying the end of the day.
 
 ### 2024-8-29 Albergue Casa Calvar
 Lugar campo da feira Arcade, Estrada de Soutomaior, 1, 36690 Pontevedra, Spain  
 Private albergue with swimming pool and restaurant.
++ Swimming pool.
++ Bunkbeds with curtain, light and power sockets.
+- No cooking or free dining area available. Guests are expected to use the restaurant.
 
 #### Walk
-- Bought the camino T-shirt at 'Bo Camiño', the souvenir shop in Mos.
+- Upon arriving at the 'Albergue de Peregrinos de Briallos' just before 7 PM, I realized I was at the wrong albergue. My reservation was at 'Albergue da Portela - Barro,' where the communal dinner begins at 7 PM. Unfortunately, I had passed that albergue by 6 kilometers.
 
 ### 2024-8-30 Albergue de Peregrinos de Briallos
 EP-8102, 25, 8102, 36658 O Cruceiro, Pontevedra, Spain  
 Public albergue in a small village with pilgrims' menu, basketball field and small playground.
++ Enjoyed the 15 euro three-course pilgrims' menu at the restaurant next to the albergue.
++ Not very crowded, several bunk beds were available.
++ Common room with table and fridge.
++ Outdoor seating with tables and chairs.
+- The neighborhood doesn't offer much to do.
 
 #### Walk
 - Took a detour from the regular Camino route, heading right (east) of Padrón along a trail that crosses a narrow bridge over the Rio Ulla, leading directly to the monastery.
@@ -131,12 +144,21 @@ A Franciscan monastery, now converted into an albergue, is run by dedicated Span
 ### 2024-9-01 Albergue Milladoiro
 R.Buxo, 4, 15895 O Milladoiro, A Coruña, Spain  
 Private albergue located in a modern suburb of Santiago, featuring a backpacker style common area.
++ Stylish lounge-style common area with a world traveller theme.
++ Large supermarkets and restaurants nearby.
++ Modern bunk beds with curtains.
+- This modern suburb of Santiago is not very interesting.
+- Showers are quite small, with no hooks for hanging clothes, and the light turned off automatically while showering.
 
 ## Camino de Finisterre
 
 ### 2024-9-02 Albergue The Last Stamp
 Preguntoiro 10, 15704 Santiago de Compostela, Spain  
 Private albergue only a shopping street away from the Cathedral.
++ In the historical city center of Santiago.
++ Storage room for luggage.
++ Kitchen, dining area and laundry facilities downstairs.
+- Quickly fully occupied. Book ahead.
 
 ### 2024-9-03 Albergue Cotón
 Av. Santiago, 22, 15830 Negreira, A Coruña, Spain  
