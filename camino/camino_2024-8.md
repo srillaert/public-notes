@@ -79,10 +79,27 @@ Private albergue owned by a Portuguese man and his German wife.
 ### 2024-8-26 Albergue Convento Del Camino
 Tui, Spain  
 Former convent converted into an albergue, featuring a courtyard, in the historical town of Tui.
++ Well-maintained building at the end of the historical town.
++ Only 600 meters from the cathedral.
++ Courtyard with trees, shade, tables and chairs.
++ Close to the river where there is a pedestrian track going to the bridge to Valença.
+- About 3 km away from the fortifications of Valença.
+
+#### Walk
+- Visited the Catedral de Santa María de Tui in the morning.
+- Greeted by a Spanish tourist guide with her group at Igrexa de San Francisco.
+- Bought a baguette at Panaderia Xulio in Tui.
+- Enjoyed ice cream and a beer on a terrace in the only historical street of O Porriño.
 
 ### 2024-8-27 O Porriño Pilgrims' Hostel
 Av. Buenos Aires, 17, O Porriño, Pontevedra, Spain  
 State owned modern albergue next to a busy road.
+
++ Relatively cheap.
++ Supermarket located on the same street.
+- Two cramped dormitories, one of which is situated next to a busy road.
+- A kitchen is available, but the cupboards are completely empty, with no cooking equipment, utensils, or plates provided.
+- Cold showers with limited space.
 
 #### Walk
 - Enjoyed a coffee in front of the restaurant in Mos.
