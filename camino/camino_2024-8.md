@@ -65,14 +65,45 @@ Modern albergue in the city with one densely packed dormitory.
 ### 2024-8-23 Casa Da Fernanda
 Lugar de Corgo, Portugal  
 Best casa on the camino. Common meal with drinking, singing and dancing. Get to know the other pilgrims.
++ Highly recommended as one of the best experiences along the Camino Portugués.
++ Enjoyed a wonderful evening with a communal dinner, complete with wine and port. Afterwards, we sang and danced together—an incredible way to bond with fellow pilgrims staying at the casa.
++ Also a shared breakfast in the morning.
++ Exceptionally friendly host couple.
+- Handwashing facilities only.
+
+#### Walk
+- Took a relaxing break by the Limia river when entering Ponte de Lima.
+- Had dinner in the charming old city center with a group of German Camino friends.
+- While the others attended a music festival afterwards, I opted to return to the albergue for some rest.
 
 ### 2024-8-24 Albergue de Peregrinos de Ponte de Lima
 Largo da Alegria 120, Ponte de Lima, Portugal  
 Two large dormitories. The albergue is close to the old bridge crossing the river Lima that divides the lively town into two parts.
++ The albergue is conveniently located just acros the old bridge.
++ Charming older building with two large dormitories at the top floor.
+- Open communal men's shower with no separate stalls and cold water.
+- Handwashing facilities only.
+
+#### Walk
+- Began the walk with a slight detour off the Camino in Ponte de Lima to pick up a baguette at Panilima Arcozelo.
+- Not far outside Ponte de Lima, I came across Stefan, a German pilgrim, who was bleeding from his leg. It seems he had fallen when leaning against an unstable stone wall beside the trail. His leg was covered with scars, and he had a deep cut. A German woman with some first aid experience helped disinfect the wound and applied a bandage. Just a few hundred meters ahead, we were lucky to find a bar where Stefan could rest. When I saw him later in Tui, he told me he had needed stitches after seeking professional medical care.
+- After arriving at the albergue, I took a walk through Cerdal and visited the local church, Santa Eulalia de Cerdal.
 
 ### 2024-8-25 Albergue Quinta Estrada Romana
 Caminho De Santiago 1607, Passos, Cerdal, Portugal  
 Private albergue owned by a Portuguese man and his German wife.
++ Lovely garden.
++ Smaller dormitories with only 4 beds per room.
+- The host was not particularly welcoming. The albergue feels more like a business and is overpriced for what it offers.
+- Communal dinner costs an extra €10, and guests are expected to help with both preparation and cleanup afterwards.
+
+#### Walk
+- Strolled around the fortifications of Valença and enjoyed a picnic on the grass.
+- Crossed the bridge from Valença, Portugal, into Tui, Spain.
+- Stopped for coffee at the Irish bar, The White Clover, where I unexpectedly ran into Stefan, the German pilgrim who had injured his leg just after Ponte de Lima.
+- Stefan recommended the albergue Convento Del Camino, which turned out to be an excellent choice.
+- In the courtyard of the albergue, I met an older Danish pilgrim named Jens, who offered to share a bottle of wine. We chatted about his life, and I shared stories about my dad, which moved me to tears.
+- Attended the medieval festival at the fortifications of Valença and had a fantastic evening enjoying local pancakes and sangria with a group of German friends.
 
 ## Camino Portugués, Spain
 
@@ -84,9 +115,11 @@ Former convent converted into an albergue, featuring a courtyard, in the histori
 + Courtyard with trees, shade, tables and chairs.
 + Close to the river where there is a pedestrian track going to the bridge to Valença.
 - About 3 km away from the fortifications of Valença.
+- The breakfast is rather simple.
 
 #### Walk
-- Visited the Catedral de Santa María de Tui in the morning.
+- In the morning, I met Brandon from San Francisco, who was staying in the same dormitory as Stefan and me.
+- Visited the Catedral de Santa María de Tui.
 - Greeted by a Spanish tourist guide with her group at Igrexa de San Francisco.
 - Bought a baguette at Panaderia Xulio in Tui.
 - Enjoyed ice cream and a beer on a terrace in the only historical street of O Porriño.
