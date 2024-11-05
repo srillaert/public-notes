@@ -213,21 +213,88 @@ Private albergue only a shopping street away from the Cathedral.
 ### 2024-9-03 Albergue Cotón
 Av. Santiago, 22, 15830 Negreira, A Coruña, Spain  
 Friendly private albergue with towels and lots of place in the shower rooms.
++ The public albergue at the end of Negreira had closed. Albergue Cotón is probably the best place in town.
++ Large private bathrooms with shower and toilet.
++ Towels are provided.
++ Nice, small kitchen with tables.
+- The sleeping area is essentially one large open hall with numerous bunk beds.
+
+#### Walk
+- The pain in my achilles began after descending a small staircase where the German couple had taken a taxi.
+- In the evening, I had a conversation with a very talkative older English-American man.
 
 ### 2024-9-04 Albergue-Pensión Ponte Olveira
 Ponte Olveira 3, 15256 Corzón, La, A Coruña, Spain  
 Private albergue in a small village with restaurant but almost no kitchen.
++ The restaurant looks inviting, but I can’t fully judge it as I only had a morning coffee there.
++ There are a few sofas with small tables, providing a cozy spot to relax and chat.
+- Very minimal kitchen facilities, likely to encourage guests to dine at the restaurant.
+- No shops in town.
+
+#### Walk
+- Walked alone until reaching Cee.
+- Stopped at the supermarket in town.
+- While visiting the church, I was lucky to catch a choir rehearsal.
+- Noticed some fairly large fish swimming in Cee’s canal.
+- Took a break on a bench overlooking Praia de Cee beach, where a group of young people was gathered, with the girls dancing topless. ;-)
+- Continued along the fjord, enjoying the beautiful views across the water.
+- Arrived at the albergue, where the only other guests were two young German girls who had started the Camino from Lourdes!
 
 ### 2024-9-05 Albergue de Peregrinos
 AGACS San Roque de Corcubión, Campo de San Roque, 15130 Corcubión, A Coruña, Spain  
 Donativo volunteer albergue with common dinner and breakfast.
++ Lovely common area with sofas and table.
++ Shared dinner and breakfast provided.
++ The hospitalero was friendly and played excellent guitar.
+- The washing machine is reserved for the hospitaleros; the pilgrims need to handwash clothes outside.
+- The two hospitaleros, an older Spanish man and woman, speak limited English.
+- The building looks like an old schoolhouse.
+
+#### Walk
+- In the morning, an older lady with a shop beside her house—selling items decorated with St. James shells—let me sample the local liquor.
+- Met up with the Dutch couple and a woman from Barcelona at the viewpoint overlooking Finisterre.
+- Had a snack of bread just before entering Finisterre.
+- Ran into the Polish couple as they were leaving their hotel to catch the bus.
+- Checked in at the albergue.
+- Took the traditional swim at Praia Corveiro upon arriving in Finisterre. The water was cold at 13°C, so it was a quick dip!
+- Joined the end of a Mass at the church *Santa María das Areas* on the way to the lighthouse.
+- Took photos at the 0 km marker.
+- Spent time gazing over the ocean at the lighthouse.
+- Had dinner with a Catalonian couple at the Berlin-Madrid restaurant. She’s from Barcelona, he’s from Girona, and they met just a few days ago on the Camino.
 
 ### 2024-9-06 Albergue y Pensión Finistellae
 Rúa Manuel Lago País, 7, 15155 Fisterra, A Coruña, Spain  
 Private albergue with friendly registration and good bathrooms. One has to leave on time.
++ Friendly check-in with helpful tips about the town.
++ Staff kindly moved our laundry to the dryer and placed it in our bag while we were out.
++ Large bathrooms.
+- Staff ensures everyone departs on time in the morning.
+
+#### Day
+- The day began with a rainy, somber start in Finisterre.
+- Chatted with a German woman who spoke excellent Dutch on the bus to Santiago, enjoying scenic views of the sea along the way.
+- Had a few spare hours in Santiago, which I used to buy a necklace and earrings for Hanne in the city center.
+- Sat at the back of the FlixBus from Santiago to Porto, with a brief stop in Vigo.
+- Walked from the Campanhã bus terminal to my hostel in central Porto, passing through the city's lively nightlife.
+- Shared a bottle of Port with a South Korean and an Italian.
 
 ## Visit of Porto and return home
 
 ### 2024-9-07 Gallery Hostel
 Rua de Miguel Bombarda 222 R/C, 4050-377 Porto, Portugal  
 Private hostel close to the city center of Porto. Friendly staff, a bit more expensive.
++ Conveniently located near the city center.
++ Friendly and welcoming staff.
++ Excellent breakfast.
++ Newly renovated kitchen and dining area.
++ Terrace at the back.
++ Very close to the airport bus stop.
+- Slightly more expensive.
+
+#### Day
+- Enjoyed a fantastic breakfast at the hostel and chatted with a young German woman who was about to start the Camino.
+- Left my luggage at the hostel to explore the city.
+- Walked to the cathedral, stopping along the way to buy a necklace with a cross.
+- Met Shawn, an American pilgrim who was also just beginning the Camino, at the cathedral.
+- Stayed for the end of the Mass there.
+- Walked back to the hostel to collect my luggage, then took the bus to the airport.
