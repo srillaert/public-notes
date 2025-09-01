@@ -61,6 +61,7 @@ Modern albergue in the city with one densely packed dormitory.
 - Lunch and washed my feet next to the church at Portela de Tamel.
 - Passed the train station of Tamel.
 - Coffee at Giestal.
+- I felt profound happiness while walking alone through the fields, and then I saw a beautiful white church with two towers on a hill beside a village. It wasn’t directly on the Camino, yet I felt called to visit it. The place turned out to be the Santuário Nossa Senhora da Aparecida in Balugães, consecrated to an apparition of the Virgin Mary. I went to visit the chapel, where there also arrived a family with a disabled child. Afterwards, I visited the church, the Igreja Paroquial de Balugães. With a tourist bus arriving, it felt to me like a smaller version of Lourdes or Fátima. 
 
 ### 2024-8-23 Casa Da Fernanda
 Lugar de Corgo, Portugal  
