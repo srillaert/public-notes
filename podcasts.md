@@ -21,3 +21,11 @@ Walk routine :
 	- Publishing
 	
 Accommodation is arranged in advance. One month of walking requires about one week of prior booking.
+
+# My Camino - the podcast - Sean Dietrich | The pure magic of the camino
+
+Sean Dietrich, known as Sean of the South, is an American columnist.
+
+While walking the Camino, Sean held and fingered a rosary he had received from a nun only weeks before. A young Colombian pilgrim noticed and asked if they might pray it together. Side by side, they recited the Lord’s Prayer again and again in Spanish, each holding a rosary in hand.
+
+He carried his fiddle on the Camino, pausing to play tunes like 'Amazing Grace'.
