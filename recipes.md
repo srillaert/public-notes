@@ -23,3 +23,17 @@
 	- Mornay sauce
 	- Lasagne sheets
 - 30 minutes in the oven at 200 ℃
+
+# Meatloaf
+
+## Instructions
+- optional : 2 soupspoons of oatflakes in the blender
+- 1 onion with milk in the blender
+- 800 gr of minced meat
+- optional : 1 grated courgette
+- salt and pepper
+- make a loaf shape
+- layer with 2 packages of bacon
+- 30 minutes in the oven at 200 ℃
+
+- serve with potatoes and boiled broccoli
