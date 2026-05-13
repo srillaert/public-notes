@@ -1,3 +1,14 @@
+# Flæskesteg
+
+## Instructions
+- Open the fat layers a bit more
+- Place in a tray with the fat facing down
+- Pour in boiling water till the fat layer is covered
+- 20 minutes in the oven at 200 ℃
+- Turn the meat around and rub coarse salt and pepper in the fat layer
+- 50 minutes in the oven again
+- Let rest for 15 minutes before slicing
+
 # Lasagne
 
 ## Ingredients
