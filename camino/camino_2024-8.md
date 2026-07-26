@@ -123,6 +123,7 @@ Former convent converted into an albergue, featuring a courtyard, in the histori
 - Visited the Catedral de Santa María de Tui.
 - Greeted by a Spanish tourist guide with her group at Igrexa de San Francisco.
 - Bought a baguette at Panaderia Xulio in Tui.
+- Where the camino split between Tui and O Porriño, I took by mistake the right-hand route which goes through the industrial area instead of the nicer, but longer, left-hand route. Along the way, I checked out Casa Alternativo which turned out to be owned by a Flemish guy with a dog.
 - Enjoyed ice cream and a beer on a terrace in the only historical street of O Porriño.
 
 ### 2024-8-27 O Porriño Pilgrims' Hostel
@@ -165,7 +166,7 @@ Private albergue with swimming pool and restaurant.
 - No cooking or free dining area available. Guests are expected to use the restaurant.
 
 #### Walk
-- Upon arriving at the 'Albergue de Peregrinos de Briallos' just before 7 PM, I realized I was at the wrong albergue. My reservation was at 'Albergue da Portela - Barro,' where the communal dinner begins at 7 PM. Unfortunately, I had passed that albergue by 6 kilometers.
+- Upon arriving at the 'Albergue de Peregrinos de Briallos' just before 7 PM, I realized I was at the wrong albergue. My reservation was at 'Albergue de peregrinos de A Portela-Barro' where the communal dinner begins at 7 PM. Unfortunately, I had passed that albergue by 6 kilometers.
 
 ### 2024-8-30 Albergue de Peregrinos de Briallos
 EP-8102, 25, 8102, 36658 O Cruceiro, Pontevedra, Spain  
@@ -201,8 +202,6 @@ Private albergue located in a modern suburb of Santiago, featuring a backpacker 
 - This modern suburb of Santiago is not very interesting.
 - Showers are quite small, with no hooks for hanging clothes, and the light turned off automatically while showering.
 
-## Camino de Finisterre
-
 ### 2024-9-02 Albergue The Last Stamp
 Preguntoiro 10, 15704 Santiago de Compostela, Spain  
 Private albergue only a shopping street away from the Cathedral.
@@ -210,6 +209,8 @@ Private albergue only a shopping street away from the Cathedral.
 + Storage room for luggage.
 + Kitchen, dining area and laundry facilities downstairs.
 - Quickly fully occupied. Book ahead.
+
+## Camino de Finisterre
 
 ### 2024-9-03 Albergue Cotón
 Av. Santiago, 22, 15830 Negreira, A Coruña, Spain  
