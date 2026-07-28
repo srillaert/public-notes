@@ -3,6 +3,17 @@
 ## Caminho Português Coastal, Portugal
 
 ### 2026-7-1
+
+#### Walk
+
+- We had a good breakfast at the youth hostel.
+- We visited the Igreja da Misericórdia de Viana do Castelo. It was beautifully decorated, but it felt more like a museum for tourists than an active church. Perhaps I should have visited the Catedral de Viana do Castelo instead ?
+- We tried to take the Elevador de Santa Luzia, but it had broken down, so we had to climb the stairs instead.
+- We enjoyed ice creams at Restaurante Montanha, near the Sanctuary of the Sacred Heart of Jesus, which offers beautiful views over the sea.
+- We decided to buy supplies at the Intermarché in Areosa, a large supermarket about a kilometer off the Camino. When we arrived, we discovered it had a restaurant where we could eat very affordably. For €10 each, we enjoyed an all-inclusive meal with as much food as we wanted. Reminded me of the good old days of the €10 menu perigrino. Linus also got a haircut at the barber shop there.
+- Great evening with several chats at Albergue Casa do Sardão.
+
+#### Accommodation
 Albergue Casa do Sardão
 Av. de Paço 769
 Carreço
