@@ -2,9 +2,9 @@
 
 ## Caminho Português Coastal, Portugal
 
-### 2026-7-1
+### 2026-07-01
 
-#### Walk
+#### Day
 
 - We had a good breakfast at the youth hostel.
 - We visited the Igreja da Misericórdia de Viana do Castelo. It was beautifully decorated, but it felt more like a museum for tourists than an active church. Perhaps I should have visited the Catedral de Viana do Castelo instead ?
@@ -29,3 +29,36 @@ Price 22€ per person,  tourist tax included
 - The nearest restaurant and grocery store are about half a kilometer away.
 
 [Review on Google Maps](https://maps.app.goo.gl/YWW6YdfsMxcQtiPH9) : "Albergue Casa do Sardão was the favorite albergue on our family Camino with children, thanks to its many common areas and small outdoor swimming pool. Hugo has created a warm and welcoming place for pilgrims. It is beautifully decorated with nostalgic items, including hand-drawn 19th-century family portraits. The only minor drawback is that the nearest restaurant and grocery store are about half a kilometer away, so it's worth planning ahead and bringing food."
+
+## Minho river, Portugal
+
+### 2026-07-05
+
+#### Day
+- We had a good breakfast at the youth hostel, where we chatted with a German woman who was walking along the Minho river in the opposite direction because she had found out that she had too much time.
+- We bought baguettes and snacks at the *My Auchan* supermarket in Vila Nova de Cerveira.
+- From the supermarket, we walked straight to the riverbank, passing the town's fortress on the way. 
+- Our three oldest children walked ahead, while Hanne and I followed at a slower pace with Linus.
+- Just out of town, we chatted with an older Irish-British couple who had been living in Portugal and Spain for more than 20 years. The man, who was from Manchester, had already met our older boys and had talked football with them.
+- The path along the river was shaded by trees, although there were no more inviting benches like the ones we had found the previous day.
+- We had lunch with the baguettes and the fruits that we had bought. While eating a peach, I broke off a small piece of one of my front teeth, leaving a small gap between my two upper teeth.
+- Shortly after our lunch, we came across the birthday party of a 5-year-old Portuguese girl, where her family was inviting pilgrims to join the celebration and have some cakes and drinks. We chatted with a young Indian perigrina living in North America and two young women who had also met our older children. Hanne got the address of the young woman who had invited us.
+- Emil arrived first at our albergue, Alvorada Medieval, followed by Mads, who had spend some time relaxing by the river. Finally Linus, Anton, Hanne and I arrived.
+- We enjoyed the albergue's swimming pool and the communal dinner where we talked with an Australian pilgrim from Perth and his daughter, who was in her early twenties. They were from Dutch descend. There was also an older American lady who was mute. Her walking companion had twisted her foot while climbing down from a bunk bed, so she now had to walk alone. The next day she would walk with us to Tui.
+- While Hanne and I chatted at the table, Anton and Linus played too wild at the swimming pool so that Linus ended up throwing up beside it.
+- The Australian-Dutch daughter talked about how she could hear God answering back in her prayers. She had recently returned from staying at a monastery on an island on the Hebrides islands in Scotland.
+- At 10 pm, we went to bed. It was difficult to fall asleep because of a barking dog.
+
+#### Accommodation
+Alvorada Medieval
+R. das Cruzes 110
+São Pedro da Torre
+
++ The backyard swimming pool is large enough for actual swimming.
++ The simple pilgrims' dinner provides the opportunity to socialize.
++ We got a private room although it was a bit cramped.
++ Run by a friendly couple.
+- Drinks from the bar are somewhat overpriced.
+- Difficult to fall asleep because of a barking dog in the street.
+
+[Review on Google Maps](https://maps.app.goo.gl/tocRMtbGHLzXGgbc7) : "The large backyard pool is large enough for a swim, and the simple pilgrims' dinner creates a nice atmosphere to meet other guests. The friendly hosts make you feel very welcome. The only downside is that the bar drinks are a bit overpriced."
