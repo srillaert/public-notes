@@ -32,6 +32,28 @@ Price 22€ per person,  tourist tax included
 
 ## Minho river, Portugal
 
+### 2026-07-04
+
+#### Day
+- I woke up just before 7 AM, as the last of the other pilgrims were departing *Bom Caminha*.
+- Our family left the albergue at 8 AM, which was early for us.
+- We bought breakfast at *Pingo Doce Caminha* and ate it on two benches just outside the store. From there I watched small motorboats ferry pilgrims across the Minho to the Spanish side.
+- We had lunch next to the river.
+- Mads walked ahead and discovered a lovely beach called *Praia da Mota*. The whole family cooled off in the Minho whose water felt agreeable warm compared with the Atlantic sea water.
+- We walked the final strectch to the youth hostel together.
+- Hanne prepared spaghetti bolognese using the ingredients we had bought at the supermarket.
+
+#### Accommodation
+HI Vila Nova de Cerveira
+Rua Alto das Veigas
+Vila Nova de Cerveira
+
++ Nice common areas with television screens.
++ Modern four-person dormitory rooms.
++ Staff were friendly and helpful - for example, they opened the windows in the evening to cool down the common rooms.
++ Good breakfast included.
+- The kitchen didn't have salt, pepper, or cooking oil and the kitchen utensils were limited.
+
 ### 2026-07-05
 
 #### Day
@@ -62,3 +84,13 @@ São Pedro da Torre
 - Difficult to fall asleep because of a barking dog in the street.
 
 [Review on Google Maps](https://maps.app.goo.gl/tocRMtbGHLzXGgbc7) : "The large backyard pool is large enough for a swim, and the simple pilgrims' dinner creates a nice atmosphere to meet other guests. The friendly hosts make you feel very welcome. The only downside is that the bar drinks are a bit overpriced."
+
+### 2026-07-06
+
+#### Day
+- On the Plaza de la Inmaculada, close to the Igrexa de San Francisco that I had visited two years before, the town had installed a large screen to broadcast the World Cup match between Portugal and Spain. Our boys sat close to the front of the screen, surrounded by Spaniards happy about their teams' victory that evening. It was special watching the game so close to Portugal.
+
+#### Accommodation
+Albergue Convento Del Camino Tui
+Rúa Antero Rubin, nº 30
+Tui
