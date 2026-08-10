@@ -1,4 +1,15 @@
-# Shelter in Denmark
+# Shelters in Denmark
+
+## Sites and apps with reviews
+
+- [shelterdk website](https://shelterdk.dk/)
+Shows the reviews from Google Maps.
+- [udinaturen website](https://udinaturen.dk/udforsk/overnat-i-naturen/)
+Has its own (Danish) review database.
+- [Shelter app](https://apps.apple.com/dk/app/shelter/id626652345)
+Has its own review database.
+
+## Our review(s)
 
 ### Drenderup Shelterplads
 55.4123514081558, 9.36557104047425
@@ -15,6 +26,7 @@ Linus, Emil, Hanne and me stayed at this shelter while Anton was at a football c
 - The temperature dropped during the night to around 11° which was too cold for the summer sleeping bags.
 - The surrounding forest is not particularly interesting. The trail to Ødis Sø does not lead directly to the lake; you first need to follow it towards the village of Ødis before reaching the water.
 
-[Review on Google Maps](https://maps.app.goo.gl/EXajb8VVjYkHJUcw8) : "Large shelter with a covered fire basket. A grill sits atop the fire pit, and a few old pans let you heat food there. There is no firewood at the shelter, but saws are available, allowing you to collect firewood from fallen trees in the surrounding forest.
-The toilet is an outhouse over a pit latrine. The was no toilet paper so one has to bring this.
+Review on [Google Maps](https://maps.app.goo.gl/EXajb8VVjYkHJUcw8) and Shelter app :
+"Large shelter with a covered fire basket. A grill sits atop the fire pit, and a few old pans let you heat food there. There is no firewood at the shelter, but saws are available, allowing you to collect firewood from fallen trees in the surrounding forest.
+The toilet is an outhouse over a pit latrine. There was no toilet paper so one has to bring this.
 It is about 300 meters' walk from the parking lot."
