@@ -29,3 +29,10 @@ Sean Dietrich, known as Sean of the South, is an American columnist.
 While walking the Camino, Sean held and fingered a rosary he had received from a nun only weeks before. A young Colombian pilgrim noticed and asked if they might pray it together. Side by side, they recited the Lord’s Prayer again and again in Spanish, each holding a rosary in hand.
 
 He carried his fiddle on the Camino, pausing to play tunes like 'Amazing Grace'.
+
+# My Camino - the podcast - Beebe Bahrami | A revised Camino guide book to cherish
+
+Beebe Bahrami is the author of the Moon guide to the Camino de Santiago.
+
+While on a writing retreat in Rabinal del Camino Beebe attended the Gregorian chant and prayer cycle of the day at the church there.
+Beebe was impressed by the living monastic traditions on the Meseta between Burgos and Leon. There she spent time in the prayer sessions and pilgrim blessings with nuns and brothers.
