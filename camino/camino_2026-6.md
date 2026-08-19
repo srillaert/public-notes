@@ -66,7 +66,7 @@ Vila Nova de Cerveira
 - We had lunch with the baguettes and the fruits that we had bought. While eating a peach, I broke off a small piece of one of my front teeth, leaving a small gap between my two upper teeth.
 - Shortly after our lunch, we came across the birthday party of a 5-year-old Portuguese girl, where her family was inviting pilgrims to join the celebration and have some cakes and drinks. We chatted with a young Indian perigrina living in North America and two young women who had also met our older children. Hanne got the address of the young woman who had invited us.
 - Emil arrived first at our albergue, Alvorada Medieval, followed by Mads, who had spend some time relaxing by the river. Finally Linus, Anton, Hanne and I arrived.
-- We enjoyed the albergue's swimming pool and the communal dinner where we talked with an Australian pilgrim from Perth and his daughter, who was in her early twenties. They were from Dutch descend. There was also an older American lady who was mute. Her walking companion had twisted her foot while climbing down from a bunk bed, so she now had to walk alone. The next day she would walk with us to Tui.
+- We enjoyed the albergue's swimming pool and the communal dinner where we talked with an Australian pilgrim from Perth and his daughter, who was in her early twenties. They were from Dutch descend. There was also an older American lady who was mute, Christine. Her walking companion had twisted her foot while climbing down from a bunk bed, so she now had to walk alone. The next day she would walk with us to Tui.
 - While Hanne and I chatted at the table, Anton and Linus played too wild at the swimming pool so that Linus ended up throwing up beside it.
 - The Australian-Dutch daughter talked about how she could hear God answering back in her prayers. She had recently returned from staying at a monastery on an island on the Hebrides islands in Scotland.
 - At 10 pm, we went to bed. It was difficult to fall asleep because of a barking dog.
@@ -88,9 +88,19 @@ São Pedro da Torre
 ### 2026-07-06
 
 #### Day
+- We walked with Christine and the boys. From Alvorada Medieval we walked back towards the Minho. We followed the river for a while before veering inland towards the fortifications of Valença.
+- We did some shopping at the Continente Bom Dia Valença. I stayed outside to keep an eye on the backbacks.
+- At the fortifications, we had our lunch and then walked through the shopping streets. At the end of the fortress, towards Tui, it took us a good while to find our way out and down to the bridge.
+- In the courtyard of the albergue I spoke with a self-proclaimed Franciscan. I mentioned that we were going to eat at a kebab place, and that was where we met him again later.
+- We visited the Cathedral of Tui. In the courtyard, there were lots of people dressed in medieval clothes for a film shoot.
+- We ate at "Best Doner Kebab Tui" at Rúa Compostela, 12, sitting at a table overlooking the square in front of the restaurant. The kebab menu was good, although not very large, so both Mads and Emil ordered something extra.
 - On the Plaza de la Inmaculada, close to the Igrexa de San Francisco that I had visited two years before, the town had installed a large screen to broadcast the World Cup match between Portugal and Spain. Our boys sat close to the front of the screen, surrounded by Spaniards happy about their teams' victory that evening. It was special watching the game so close to Portugal.
 
 #### Accommodation
-Albergue Convento Del Camino Tui
+Albergue Convento Del Camino
 Rúa Antero Rubin, nº 30
 Tui
+
+We revisited this albergue after having a positive experience on my first visit on August 26, 2024. It was just as good this time.
++ We had a bedroom for ourselves.
++ It was the cheapest accommodation of this Camino. Great value for money in the historic town of Tui.
