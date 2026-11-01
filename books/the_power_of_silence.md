@@ -17,7 +17,7 @@ p.14
 p.15-16  
 > In the Carthusian deserts, the cemetery is located at the center of the cloister.  
 > The graves bore no names, dates, or mementos. On the one side, there were stone crosses, for the generals of the Order, and on the other—wooden crosses for the Fathers and the lay Brothers. The Carthusians are buried in the ground without a coffin, without a tombstone; no distinctive mark recalls their individual lives. [...]  
-> Since 1084, Carthusians have not wanted to leave any trace. God alone matters. *Stat Crux dum volvitur orbis*--the world turns and the Cross remains.
+> Since 1084, Carthusians have not wanted to leave any trace. God alone matters. *Stat Crux dum volvitur orbis*—the world turns and the Cross remains.
 > — Nicolas Diat
 
 p.17-19  
@@ -35,4 +35,14 @@ p.209
 > But the more difficult task is interior silence. In the cell, or during prayer, the big noises of the soul can be unleashed. Mental games, thoughts, and emotions are happy to come distract us from our prayer. [...] What are these distractions? If we look closely, we observe that it is always an imaginary dialogue. We speak to persons about this or that subject ...
 > [...]
 > The apprenticeship of silence requires that we rest in the Lord's presence. It is a matter, not of struggling against our interior thoughts, but rather of unceasingly returning to God. Distractions are formidable because we do not see them coming and before we realize it they have led us away! The movement of returning to God, as soon as we notice that we have strayed, shows that our intention has not changed: to be with him.
+> — Dysmas de Lassus
+
+p.221  
+> *Lectio divina*, listening to the Word of God, which has always been at the heart of monastic life, is the time of the word, the time of the heart that listens, receives, and allows itself to be impregnated. It is also the time of silence that will meditate at length so as to let the Word penetrate the very depths of our being and to become truly ours.
+> — Dysmas de Lassus
+
+p.228  
+> If there is an illnes that comes from noise, we would have to call it the suffocation syndrome. I notice it through the experience of candidates who come on retreat. Memories, desires, hurts, and fears of which they are unaware and that lie at the bottom of their souls resurface. In their everyday routine, the constant influx of news, meetings, and various activities have ceaselessly covered up the voices in the depths of their being and allowed them no opportunity to reemerge into consciousness. Silence and solitude reveal them. Since the discovery is not always pleasant, and the one concerned is rather at loss, he tries to keep them outside the field of consciousness by maintaining the permanent noise that prevents them from becoming manifest.
+> [...]
+> Finally, I wonder whether the voice that the modern world seeks to stifle with incessant noise and movement might not be the one that tell us: "Remember that you are dust and that you will return to dust."
 > — Dysmas de Lassus
