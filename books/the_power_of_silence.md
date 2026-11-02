@@ -3,12 +3,14 @@ Against the Dictatorship of Noise
 by Robert Cardinal Sarah with Nicolas Diat  
 translated by Michael J. Miller  
 published 2017 by Ignatius Press, San Francisco  
-original French edition : La force du silence: Contre la dictature du bruit 2016 by Libraire Arthème Fayard, Paris, France  
+original French edition : La force du silence: Contre la dictature du bruit
+published 2016 by Libraire Arthème Fayard, Paris, France  
 read 2026-10-28
 
 Read only the sections of the book concerning the Carthusians and la Grande Chartreuse, namely the introduction and chapter V.
 
-## Quotes :
+## Quotations :
+
 ### Introduction
 p.14  
 > While the earth is sleeping, or trying to forget, the nocturnal Divine Office is the burning heart of Carthusian life.
