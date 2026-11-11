@@ -1,14 +1,20 @@
 # Journey through Genius
 the great theorems of mathematics  
 by William Dunham  
-published 1990  
+published 1991 by Penguin Books  
+first published 1990 in the United States of America by John Wiley & Sons, Inc.  
 
 My favorite book on mathematics.
 
 ## Quotations :
 
-### Afterword
+### Chapter 11. The Non-Denumerability of the Continuum (1874)
+p.266
+> The algebraic numbers are spotted over the plane like stars against a black sky;
+> the dense blackness is the firmament of the transcendentals.
+> — Eric Temple Bell *Men of Mathematics* New York: Simon & Schuster, 1937. p.569
 
+### Afterword
 p.286
 > This, therefore, is mathematics:
 > she gives life to her own discoveries;
